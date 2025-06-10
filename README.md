@@ -1,1 +1,0 @@
-# KAIM-Week-2-fintech-review-analysis
